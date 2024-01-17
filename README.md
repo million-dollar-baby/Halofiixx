@@ -1,2 +1,0 @@
-# Halofiixx
-Official Landing Page
